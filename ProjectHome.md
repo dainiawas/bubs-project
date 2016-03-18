@@ -1,0 +1,1 @@
+Well all smart tvs are yahoo platformed. so if we make them into multiple platform so the consumer can pick wit h platform that they perferand to my tboughts Google would like it plus it would run better running on fiber optic network
